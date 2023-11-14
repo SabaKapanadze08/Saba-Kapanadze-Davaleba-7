@@ -1,1 +1,2 @@
-# Saba-Kapanadze-Davaleba-7
+# დავალება 7
+საბა კაპანაძე
